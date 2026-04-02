@@ -23,7 +23,7 @@ Activity here may appear uneven:
 Discussion and explanation are generally welcome.
 Most ideas are refined through conversation before becoming written artifacts.
 You can reach me through the following channels: 
-- discord: [https://discord.gg/WT4EX3G3](https://discord.gg/WT4EX3G3)
+- discord: [https://discord.com/invite/MrWQd7h34R](https://discord.com/invite/MrWQd7h34R)
 - email: guangliang2018@foxmail.com
 - QQ: 2606298246
 
