@@ -26,6 +26,7 @@ You can reach me through the following channels:
 - discord: [https://discord.com/invite/MrWQd7h34R](https://discord.com/invite/MrWQd7h34R)
 - email: guangliang2018@foxmail.com
 - QQ: 2606298246
+- wechat: 13359581771
 
 If you are looking for fast-moving, production-oriented results,
 this may not be the right place.
